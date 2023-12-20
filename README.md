@@ -28,4 +28,4 @@ E-Solar Base is your one-stop shop for all your solar energy needs. We offer a w
 
 ## Contact Us
 
-For any inquiries or assistance, please feel free to contact our customer support team at [support@esolarbase.com](mailto:support@esolarbase.com) or call us at +1 123-456-7890.
+For any inquiries or assistance, please feel free to contact our customer support team at [support@esolarbase.com](mailto:support@esolarbase.com) or call us at +2547-152-9601.
